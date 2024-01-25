@@ -1,4 +1,4 @@
-A *Venture Capital Thesis* about **Antifragility** while shifting towards the Age of Aquarius
+A *Venture Capital Strategy* about **Antifragility** while shifting towards the Age of Aquarius
 --- 
 ### tl;dr
 - Developing a venture capital strategy that leverages the themes of the Age of Aquarius - innovation, humanitarianism, and collective consciousness - to build an antifragile investment portfolio that thrives in times of change and uncertainty.
