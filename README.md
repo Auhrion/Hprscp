@@ -1,7 +1,7 @@
-
 Hi there! Here you'll find a *Venture Capital Strategy* about **Antifragility** while shifting towards the Age of Aquarius called the "Hyperscope Strategy"
 
 --- 
+
 ### tl;dr
 - Developing a venture capital strategy that leverages the themes of the Age of Aquarius - innovation, humanitarianism, and collective consciousness - to build an antifragile investment portfolio that thrives in times of change and uncertainty.
 ## Goals
