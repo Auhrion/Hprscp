@@ -1,5 +1,5 @@
 
-hi, here is A *Venture Capital Strategy* about **Antifragility** while shifting towards the Age of Aquarius called the "Hyperscope Strategy"
+Hi there! Here you'll find a *Venture Capital Strategy* about **Antifragility** while shifting towards the Age of Aquarius called the "Hyperscope Strategy"
 
 --- 
 ### tl;dr
