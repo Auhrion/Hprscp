@@ -9,6 +9,8 @@ Hi there! Here you'll find a *Venture Capital Strategy* about **Antifragility** 
 - Identify and invest in innovative startups that align with the values of the Age of Aquarius.
 - Build a resilient and adaptive investment portfolio that benefits from market volatility and global shifts.
 ### User Goals:
+![Uploading umebosi._splash_and_dirt_of_vibrant_greenery_and_purple_rays_c2a41ba3-4e74-4303-866f-258bad5de4ad.jpg…]()
+
 - Provide investors with opportunities to contribute to socially impactful and futuristic businesses.
 - Offer educational resources about the Age of Aquarius and its implications for investment strategies.
 ### Non-Goals:
