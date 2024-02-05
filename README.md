@@ -23,7 +23,7 @@ umebosi._splash_and_dirt_of_vibrant_greenery_and_purple_rays_c2a41ba3-4e74-4303-
 - A step-by-step guide for investors on how to evaluate and invest in startups that align with the Age of Aquarius values.
 - Interactive tools for assessing the antifragility of potential investments.
 ## Narrative
-Imagine a world where investments are not just about financial returns but also about contributing to a greater good. In this Age of Aquarius, our venture capital firm stands at the forefront of a movement that values innovation, compassion, and collective growth. We're not just funding businesses; we're nurturing ideas that will shape a better future.
+Investments are not just about financial returns but also about contributing to a greater good. In this Age of Aquarius, our venture capital firm stands at the forefront of a movement that values innovation, compassion, and collective growth. We're not just funding businesses; we're nurturing ideas that will shape a better future.
 ## Success Metrics
 - Number of investments in startups aligned with the Age of Aquarius themes.
 - Performance of the investment portfolio during market volatility.
